@@ -3,7 +3,7 @@
 Hey there! I’m Harshita, a curious coder, AI tinkerer, and occasional doodle enthusiast💁🏻‍♀️.
 
 🎨I love to draw to get things off my chest when life gets too overwhelming.
-👩🏻‍🍳I really really dislike cooking, it's just not my thing.
+👯I love socializing and making new friends.
 ✨I'm super organized & detail-oriented because life’s better when things are just right.
 👩🏻‍💻I'm also a CS student majoring in Artificial Intelligence!! 
 
